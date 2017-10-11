@@ -40,9 +40,7 @@
 
 试看下列各图：
 [1]:http://img.ycwb.com/news/attachement/jpg/site2/20100930/90fba60187190e0e661f15.jpg  "1"
-
 [2]:http://www.th7.cn/d/file/p/2012/09/07/bda654646064a68df087c1c9aa731c14.jpg  "2"
-
 [3]:http://img.hc360.com/ad/info/images/200707/7134.jpg  "3"
 
 是不是很有创意，都用一种极其夸张的方式来比喻自家快递的“快”。
